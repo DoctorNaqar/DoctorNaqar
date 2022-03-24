@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DoctorNaqar
+- 👀 I’m interested in teaching those around me about various subjects, medicine, and the financial markets particularly stocks. 
+- 🌱 I’m currently learning how to build a dynamic website.
+- 📫 You can reach me via instagram @doctornaqar. 
